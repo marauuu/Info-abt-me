@@ -4,7 +4,7 @@ Private details: Hi, I'm Mara, I'm 18 years old and I'm from Australia, I work a
 
 Stuf: hi if you see me in the game you can very simply give me c or h! I am very open to this and you don't need to ask me or feel uncomfortable,i  supporting this! and I am open to personal interaction if you need.
 
-(!hey I suffer from depression, I use drugs regularly, and weeds, I'm an alcoholic and I don't usually communicate much so if you see me playing and I don't answer I'm most likely blacked out !)
+(!hey I suffer from depression, I do weds regularly, I'm an alcoholic and I don't usually communicate much so if you see me playing and I don't answer I'm most likely blacked out !) I need seriously help ikr..
 
 must know: I'm very friendly <3
 WARNING ‼️‼️
